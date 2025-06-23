@@ -1,11 +1,11 @@
-## Hi there 👋
+## Hello there 👋
 
 
 **Dominiksmolkovic123/dominiksmolkovic123** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
+- may the force be with you 
 - 🌱 I’m currently learning ...
 - 👯 I’m looking to collaborate on ...
 - 🤔 I’m looking for help with ...
