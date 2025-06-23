@@ -3,6 +3,6 @@
 
 - may the force be with you 👽
 - front end developer tryhard🎶😎
-- imamo najboljeg predavača😇
+- videogame lover😇🙌
 - let's get ready to rumble👌🤠
 
