@@ -2,7 +2,7 @@
 
 
 - may the force be with you 👽
-- lito ide mala🎶😎
+- front end developer tryhard🎶😎
 - imamo najboljeg predavača😇
-- nadam se da sam dobro napravio👌🤠
+- let's get ready to rumble👌🤠
 
